@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Wilbur
+- 👀 I’m interested in reading, drawing, history, and DSMP.
+- 🌱 I’m currently learning how to play the piano!
+- 📫 How to reach me: Discord ( incel45#5055 ), twitter ( unsymettrical )
